@@ -1,1 +1,1 @@
-# komik-webtoon
+# komik-sejarah
